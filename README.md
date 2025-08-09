@@ -1,0 +1,1 @@
+Tiešsaistes rezultāti Valmieras Magnēts
